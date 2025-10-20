@@ -7,4 +7,4 @@ I'm **Abhishek Ghosh**, a passionate **Maker**, **Medical Doctor** and operate a
 
 ## Latest Blog Posts
 
-Check out my latest insights on technology and health on my blog: [thecustomizewindows.com](https://thecustomizewindows.com).
+Check out my latest insights on technology and health on my blogs : [thecustomizewindows.com](https://thecustomizewindows.com)  and Health in Bengali language -  [thecustomizewindows.com](https://thecustomizewindows.com).
